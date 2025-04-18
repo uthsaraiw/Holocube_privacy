@@ -1,1 +1,1 @@
-# Holocube_privacy
+# Privacy_Policy
